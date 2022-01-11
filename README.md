@@ -1,1 +1,1 @@
-# stepik
+# Zofia Tokarczyk
